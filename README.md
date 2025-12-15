@@ -1,0 +1,54 @@
+# DUSTY – THE FIRE AND THE RAIN
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:03.84] The fire and the rain
+[00:14.34] 
+[00:30.03] I wanna feel the way you feel
+[00:33.59] I know you'll take me up and down
+[00:36.19] But before you start
+[00:37.49] I will teach my heart
+[00:38.96] To be steely
+[00:40.56] Woah
+[00:42.56] 
+[00:41.83] And when I'm feeling lonely
+[00:43.54] And baby - sorry
+[00:44.64] I wanna get the feeling to fight for you
+[00:47.72] And when you shine bright
+[00:49.27] Your love is real light
+[00:51.28] And I'll forget the pain just to reach to you
+[01:13.78] 
+[00:54.00] I feel the fire and the rain
+[00:56.94] The game you play is no escape for me baby
+[01:00.20] Dance in the fire and the rain
+[01:03.17] Destiny Child - you can really believe me
+[01:06.16] I feel the fire and the rain
+[01:09.27] The game you play is no escape for me baby
+[01:12.38] Dance in the fire and the rain
+[01:15.43] Destiny Child - you can really believe me
+[01:18.70] The fire and the rain
+[01:29.20] 
+[01:33.43] I'm lookin' for a way to be
+[01:36.90] I'm never gonna let you down
+[01:39.52] Just in case you find
+[01:40.83] You can change your mind
+[01:42.14] And be leavin'
+[01:49.14] 
+[01:45.24] And when I'm feeling lonely
+[01:47.01] And baby - sorry
+[01:48.46] I wanna get the feeling to fight for you
+[01:51.58] And when you shine bright
+[01:52.76] Your love is real light
+[01:54.79] And I'll forget the pain just to reach to you
+[02:17.29] 
+[01:57.67] I feel the fire and the rain
+[02:00.55] The game you play is no escape for me baby
+[02:03.58] Dance in the fire and the rain
+[02:06.64] Destiny Child - you can really believe me
+[02:09.52] I feel the fire and the rain
+[02:12.63] The game you play is no escape for me baby
+[02:15.68] Dance in the fire and the rain
+[02:18.78] Destiny Child - you can really believe me
+[02:22.94] The fire and the rain
+```
